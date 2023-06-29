@@ -1,1 +1,1 @@
-Get honey from farm in game Pixels
+Get honey from a farm in game Pixels
